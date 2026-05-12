@@ -1,4 +1,4 @@
-#  
+#  smart Script for catch and tame is the best catch and tame Script, featuring no clip and auto-sell. Safe and powerful for all your needs.
 
 
 
